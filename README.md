@@ -1,1 +1,1 @@
-__Strongly__
+ – and only for this task –
